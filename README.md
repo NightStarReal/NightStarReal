@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NightStarReal
-- ✨ I'm TCSM main admin and programmer.
+- ✨ I'm programmer.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Ocsar
 
